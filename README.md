@@ -1,2 +1,2 @@
 # Sam
-Idk but have fun
+have great time
